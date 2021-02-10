@@ -1,0 +1,5 @@
+- Eggs (1-2)
+- Rice
+- Soy Sauce
+- Water (optional)
+- Butter (optional)
